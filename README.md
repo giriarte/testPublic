@@ -1,2 +1,6 @@
 # testPublic
 Test public repo
+
+
+AKIAYP5WGAXKW5D4POX7
+2F/X8KUdPgUQKcDlbZLHQx96EMXCxVj/3Q8mSKAM
